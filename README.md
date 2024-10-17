@@ -1,1 +1,0 @@
-# BWFILTER-_AditiaFahrudin
